@@ -1,2 +1,2 @@
-Ye marde aroom mikhore be narde,
-seft khorde barnagashte.
+Ye marde kheyli seft mikhore be narde,
+vali bar nemigarde.
